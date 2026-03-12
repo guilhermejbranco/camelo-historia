@@ -1,4 +1,38 @@
-Marca criada em [[Campo Maior]].
+Marca criada em [[Campo Maior]] na década de 1930.
+
+## Primeiras marcas
+
+**Cubana** foi a primeira marca:
+
+- Estava em nome da tia da [[Milagro]] (Luísa)
+- [[Joaquim d'Olaia]] não registava nada em nome dele
+- Só depois criou a Camelo
+
+Por questões legais, a marca Cubano teve de ser vendida.
+
+Surgiram então simultaneamente:
+
+- **Café Cubano**
+- **Café Camelo**
+
+Houve uma separação entre os irmãos que trabalhavam juntos.
+
+## Outras Marcas
+
+Depois do pai do [[Sr. Rui Nabeiro]] falecer, surgiram outras marcas:
+
+- **Girafa** - café moído
+- **Chimpanzé** - café moído
+
+Estas marcas eram diferentes da Camelo.
+
+## Fundadores
+
+A Camelo foi fundada por três pioneiros:
+
+- [[Joaquim d'Olaia]]
+- [[Manuel Nabeiro]] (João dos Santos Nabeiro - pai do Sr. Rui)
+- [[Manuel Silveira]] (cunhado de Joaquim)
 
 ## Origem do nome
 

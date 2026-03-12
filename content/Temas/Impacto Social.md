@@ -21,19 +21,57 @@ Uma das características mais marcantes da sua atuação foi a política de empr
 - nunca recusava trabalho a quem precisasse
 - procurava integrar pessoas da comunidade nas atividades da empresa
 
+**Importância para Campo Maior:**
+
+"Metia muita gente a trabalhar na Camelo, tanta gente."
+
+- Tinha muita importância para a vila
+- Não havia cá outra fábrica
+- Colocavam muita gente a trabalhar, mesmo na torrefação
+
+**Divisão de trabalho:**
+
+- As mulheres pesavam os pacotes
+- Outra fechava
+- Outra punha selos
+- Muitas famílias dependiam deste trabalho
+
 Isto contribuiu para que várias famílias da região passassem a depender da atividade ligada ao café.
 
 ## Construção de casas
 
-O Comendador também ajudava trabalhadores a construir as suas casas.
+O espaço envolvente da [[Torrefação Camelo]] era inicialmente campo aberto.
 
-Em alguns casos:
+O Sr. Rui facilitou a aquisição dos terrenos envolventes para colaboradores construirem as suas habitações.
 
-- fornecia materiais
-- emprestava ferramentas
-- participava pessoalmente nas construções
+**Rua Dr. Afonso Costa:**
 
-Este apoio contribuiu para o crescimento urbano de [[Campo Maior]].
+- Foi cedida gratuitamente ao município de Campo Maior pelo Sr. Rui
+- A rua pertencia à torrefação
+- Numa rua paralela à Camelo existe uma **placa de agradecimento** ao Sr. Rui
+
+Apoio na construção:
+
+- Cedia viaturas e montacargas para os colaboradores irem buscar materiais
+- Dava facilidades para que as pessoas tivessem melhor condição de vida
+- Emprestava as mais-valias que tinha em prol das pessoas
+
+## Apoio à comunidade
+
+A Camelo sempre apoiou instituições e associações de [[Campo Maior]]:
+
+**Festas do Povo:**
+
+- Empréstimo de viaturas
+- Cedência de montacargas
+- Sempre que necessário, os recursos eram disponibilizados
+
+**Clube de Futebol:**
+
+- Ligação forte ao clube de futebol local
+- Havia jogadores que trabalhavam na Camelo
+
+A Camelo era vista como **mais que uma empresa, uma família amiga**.
 
 ## Relação com os trabalhadores
 
