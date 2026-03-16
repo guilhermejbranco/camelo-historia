@@ -48,6 +48,37 @@ Quis transportar essa ideia de confiança para a marca de café.
 
 O acordo com a Phillip Morris foi negociado pelo [[Sr. Rui Nabeiro]].
 
+## O Selo da Camelo
+
+**Importância do selo:**
+
+O selo era a **garantia de qualidade** do café.
+
+**Processo de selagem:**
+
+- Os pacotes eram em papel
+- As mulheres enchiam-nos
+- Pesavam-nos
+- Agrafavam-nos
+- Por fim era colocado o selo
+- Cada pacote levava **dois selos**
+
+**Controlo rigoroso:**
+
+- Estando o selo corrompido, era alegada falsificação
+- Os pacotes que não estivessem em condições eram **queimados**
+- Para não correr risco de uso inapropriado
+- **Não havia pacote que saísse sem selo**
+- Havia um cuidado especial com esta questão
+
+**Para os espanhóis:**
+
+- Os espanhóis adoravam o café da Camelo
+- O selo servia para garantir que era uma carga de qualidade
+- Era um bem precioso
+- Especialmente o **café preto** (café a brilho)
+- Era um café forte
+
 ## Primeiras instalações
 
 - Pequena torrefação

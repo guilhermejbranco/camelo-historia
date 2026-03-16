@@ -7,11 +7,23 @@ Atividade económica importante em [[Campo Maior]] nas décadas de [[1930]] e [[
 
 ## Como Funcionava
 
+**Dois grupos:**
+
+- Contrabandistas **portugueses**
+- Contrabandistas **espanhóis**
+
 **Recolha do café:**
 
 - Os contrabandistas iam buscar o café à [[Torrefação Camelo]] **de noite**
+- Fazia-se uma carga: saco com **25/30 kg**
 - Iam buscar nas **mochilas**
-- Levavam-nas às costas para **Badajoz**
+- **Às costas** eram transportados para **Espanha**
+- Levavam-nas para **Badajoz**
+
+**Partida:**
+
+- O grupo português partia **de tarde** em direção à fronteira
+- "Uma vez corria bem e outras não"
 
 **Sistema de pagamento:**
 
@@ -65,12 +77,21 @@ As pessoas iam carregar a casa da [[Milagro]]:
 
 ## Produto procurado
 
-O café era:
+**O café era um bem precioso:**
 
 - Muito procurado em [[Espanha]]
 - Tido como bem de primeira necessidade
 - De grande qualidade
 - Uma carência durante a guerra civil
+- Gostava-se muito do café da Camelo
+
+**Preferência dos espanhóis:**
+
+- Os espanhóis **adoravam** o café da Camelo
+- Ainda hoje o adoram
+- O **café preto** em específico (café a brilho)
+- Era um **café forte**
+- O selo servia para garantir que era uma carga de qualidade
 
 ## Permuta de produtos
 
